@@ -1,1 +1,1 @@
-![ICC Comparison](https://github.com/user-attachments/assets/42642d68-b6a4-4ff0-a69e-4907cdd56771)
+![t_20_wc_2024_comparison](https://github.com/user-attachments/assets/75985cf9-f135-4fda-ab8f-e06576d7865a)
